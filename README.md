@@ -1,7 +1,7 @@
 ### Hi there 👋
 
 
-- 🔭 I’m currently working on finding the best IT talents in Italy @Adecco 
+- 🔭 I’m currently finding the best IT talents in Italy for my clients @Adecco 
 - 🌱 I’m currently learning about GitHub (ubernoob)
 - 💬 I you are searching for a new work in Italy, write me!
 - 📫 How to reach me: guido.penta@adecco.it
