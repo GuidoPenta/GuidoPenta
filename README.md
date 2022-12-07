@@ -23,7 +23,7 @@ Frens call me __insert_name_, I love music and I dance to the beat of social con
 <img align="right" src="https://media1.giphy.com/media/13HgwGsXF0aiGY/giphy.gif" />
   
 
-  🍌 Don't forget to get some Potassium 🍌
+  🍌 Don't forget your Potassium 🍌
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
