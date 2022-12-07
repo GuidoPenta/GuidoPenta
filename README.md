@@ -1,4 +1,4 @@
-Hey 👋, I'm Guido
+<h1>Hey 👋, I'm Guido</h1>
 Frens call me __insert_name_, I love music and I dance to the beat of social connections the most. Reach out if you feel like connecting!
 
 
@@ -7,7 +7,7 @@ Frens call me __insert_name_, I love music and I dance to the beat of social con
 
   <h2> ⚡️ A Few Quick Facts</h2>
 
-<ul>
+<ul align="left">
 <li>🔭 I’m currently searching for the best IT talents in Italy for my clients</li>
 
 <li>🌱 Currently learning about GitHub (ubernoob)</li>
@@ -17,6 +17,8 @@ Frens call me __insert_name_, I love music and I dance to the beat of social con
 <li>😄 Pronouns: He/Him</li>
 
 <li>⚡ Fun fact: I can't write a single line of code.</li>
+  
+  </ul>
 
 <img align="right" src="https://media1.giphy.com/media/13HgwGsXF0aiGY/giphy.gif" />
   
