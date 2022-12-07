@@ -8,10 +8,15 @@ Frens call me __insert_name_, I love music and I dance to the beat of social con
 <div align= "left">
 ⚡️ A Few Quick Facts
 - 🔭 I’m currently searching for the best IT talents in Italy for my clients
+
 - 🌱 Currently learning about GitHub (ubernoob)
+
 - 💬 If you are searching for a new work in Italy, let's have a chat! guido.penta@adecco.it
+
 - 😄 Pronouns: He/Him
+
 - ⚡ Fun fact: I can't write a single line of code.
+
 </div>
 <div align="right">
   
