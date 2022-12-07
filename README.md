@@ -24,3 +24,7 @@ Frens call me __insert_name_, I love music and I dance to the beat of social con
   
 
   🍌 Don't forget to get some Potassium 🍌
+
+<h3 align="left">Connect with me:</h3>
+<p align="left">
+<a href="https://linkedin.com/in/guido-penta/" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/linked-in-alt.svg" alt="guido penta" height="30" width="40" /></a>
