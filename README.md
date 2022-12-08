@@ -1,5 +1,5 @@
 <h1>Hey 👋, I'm Guido</h1>
-Frens call me __insert_name_, I love music and I dance to the beat of social connections the most. Reach out if you feel like connecting!
+Frens call me Zio Guido, I love metal music and I dance to the beat of social connections the most. Reach out if you feel like connecting!
 
 
 
