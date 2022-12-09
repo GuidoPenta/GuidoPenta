@@ -1,5 +1,5 @@
 <h1>Ciao 👋, I'm Guido</h1>
-Frens call me Zio Guido, I love metal music and I dance to the beat of social connections the most. Reach out if you feel like connecting!
+Frens call me Zio Guido, I love 🤘 metal music and I dance to the beat of social connections the most. Reach out if you feel like connecting!
 
 
 
@@ -10,13 +10,13 @@ Frens call me Zio Guido, I love metal music and I dance to the beat of social co
 <ul align="left">
 <li>🔭 I’m currently searching for the best IT talents in Italy for my clients</li>
 
-<li>🌱 Currently learning about GitHub (ubernoob)</li>
+<li>🤓 Currently learning about GitHub (ubernoob)</li>
 
 <li>💬 If you are searching for a new work in Italy, let's have a chat! guido.penta@adecco.it</li>
 
-<li>😄 Pronouns: He/Him</li>
+<li>🌈 Pronouns: He/Him</li>
 
-<li>⚡ Fun fact: I can't write a single line of code.</li>
+<li>💻 Fun fact: I can't write a single line of code.</li>
   
   </ul>
 
