@@ -1,5 +1,5 @@
 <h1>Ciao 👋, I'm Guido</h1>
-Frens call me Zio Guido, I love 🤘 metal music and I dance to the beat of social connections the most. Reach out if you feel like connecting!
+Frens call me Zio Guido, I love 🤘 metal music, I work in the IT industry as an italian Recruiter and I dance to the blast beats of social connections the most. Reach out if you feel like connecting!
 
 
 
