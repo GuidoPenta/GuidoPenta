@@ -16,7 +16,7 @@ Tech Recruiter @Polaris Engineering SPA
 * ✉️  You can contact me at [penta@polarisengineeringspa.com](mailto:penta@polarisengineeringspa.com)
 * 🧠  I'm learning Github (no, I won't became a dev)
 * 🤝  I'm open to collaborate with anyone (but only on modifying readme.md, it's the only thing I can do)
-* ⚡  Metal drummer | Dad x2 | Geek | I like to speak (and i speak a lot | 
+* ⚡  Metal drummer | Dad x2 | Geek | I like to speak (and i speak a lot) 
 
 <a href="https://www.github.com/GuidoPenta" target="_blank" rel="noreferrer"><img
 src="https://img.shields.io/github/followers/GuidoPenta?logo=github&style=for-the-badge&color=f97316&labelColor=000000" /></a>
