@@ -18,9 +18,7 @@ Tech Recruiter @Polaris Engineering SPA
 * 🤝  I'm open to collaborate with anyone (but only on modifying readme.md, it's the only thing I can do)
 * ⚡  Metal drummer | Dad x2 | Geek | I like to speak (and i speak a lot) 
 
-
 ### Our Tech Stack
-
 
 <p align="left">
 <a href="https://kotlinlang.org/" target="_blank" rel="noreferrer"><img src="https://raw.githubusercontent.com/danielcranney/readme-generator/main/public/icons/skills/kotlin-colored.svg" width="36" height="36" alt="Kotlin" /></a>
@@ -31,14 +29,11 @@ Tech Recruiter @Polaris Engineering SPA
 <a href="https://www.mongodb.com/" target="_blank" rel="noreferrer"><img src="https://raw.githubusercontent.com/danielcranney/readme-generator/main/public/icons/skills/mongodb-colored.svg" width="36" height="36" alt="MongoDB" /></a>
 </p>
 
-
-### Socials
+### Where you can find me
 
 <p align="left"> <a href="https://www.github.com/GuidoPenta" target="_blank" rel="noreferrer"><img src="https://raw.githubusercontent.com/danielcranney/readme-generator/main/public/icons/socials/github.svg" width="32" height="32" /></a> <a href="https://www.linkedin.com/in/guido-penta/" target="_blank" rel="noreferrer"><img src="https://raw.githubusercontent.com/danielcranney/readme-generator/main/public/icons/socials/linkedin.svg" width="32" height="32" /></a></p>
 
-### Badges
-
-<b>My GitHub Stats</b>
+### My Github Stats
 
 <a href="http://www.github.com/GuidoPenta"><img src="https://github-readme-stats.vercel.app/api?username=GuidoPenta&show_icons=true&hide=&count_private=true&title_color=f97316&text_color=ffffff&icon_color=f97316&bg_color=000000&hide_border=true&show_icons=true" alt="GuidoPenta's GitHub stats" /></a>
 
