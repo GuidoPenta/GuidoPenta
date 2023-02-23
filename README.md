@@ -21,7 +21,7 @@ Tech Recruiter @Polaris Engineering SPA
 * 
 This is your daily fortune cookie quote: 
 
-> 🥠 You love Chinese food.
+> 🥠 An alien of some sort will be appearing to you shortly.
   ### Let's play!  
 
 ### Our Tech Stack
