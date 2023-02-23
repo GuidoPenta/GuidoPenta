@@ -18,7 +18,7 @@ Tech Recruiter @Polaris Engineering SPA
 * 🤝  I'm open to collaborate with anyone (but only on modifying readme.md, it's the only thing I can do)
 * ⚡  Metal drummer | Dad x2 | Geek | I like to speak (and i speak a lot) 
 *     This is your daily fortune cookie quote: 
-> 🥠 You have rice in your teeth.
+> 🥠 You love Chinese food.
   ### Let's play!  
 
 ### Our Tech Stack
