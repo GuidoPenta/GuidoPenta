@@ -17,7 +17,10 @@ Tech Recruiter @Polaris Engineering SPA
 * 🧠  I'm learning Github (no, I won't become a dev)
 * 🤝  I'm open to collaborate with anyone (but only on modifying readme.md, it's the only thing I can do)
 * ⚡  Metal drummer | Dad x2 | Geek | I like to speak (and i speak a lot) 
-*     This is your daily fortune cookie quote: 
+* 
+* 
+This is your daily fortune cookie quote: 
+
 > 🥠 You love Chinese food.
   ### Let's play!  
 
