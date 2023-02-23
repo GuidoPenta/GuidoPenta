@@ -4,7 +4,7 @@ from git import Repo
 import os
 
 # Opens the fortunes file and reads a random line
-with open('./fortune_cookie/fortunes.cookie', encoding='utf-8') as f:
+with open('./fortune cookie/fortunes.cookie', encoding='utf-8') as f:
     lines = f.readlines()
 
 random_line_number = random.randint(2, len(lines) - 1)
