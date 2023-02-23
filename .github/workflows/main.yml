@@ -28,4 +28,4 @@ jobs:
       - name: Run a script
         run: |
           pip install gitpython
-          python fortune_cookie/update_cookie.py
+          python fortune cookie/update_cookie.py
