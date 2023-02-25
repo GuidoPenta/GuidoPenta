@@ -20,7 +20,7 @@ Tech Recruiter @Polaris Engineering SPA
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Your fortune said you need to make a donation. Follow the Paypal link.
+> 🥠 I can't believe you're about to eat my tiny home.
 
 ### Our Tech Stack
 
