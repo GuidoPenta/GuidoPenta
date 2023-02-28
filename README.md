@@ -20,7 +20,7 @@ Tech Recruiter @Polaris Engineering SPA
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 He who laughs last is laughing at you.
+> 🥠 A foolish man listens to his heart. A wise man listens to cookies.
 
 ### Our Tech Stack
 
