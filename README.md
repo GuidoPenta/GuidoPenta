@@ -20,7 +20,7 @@ Tech Recruiter @Polaris Engineering SPA
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 I see money in your future. It's not yours though.
+> 🥠 A conclusion is simply the place where you got tired of thinking.
 
 ### Our Tech Stack
 
