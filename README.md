@@ -20,7 +20,7 @@ Tech Recruiter @Polaris Engineering SPA
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 May you someday be carbon neutral.
+> 🥠 You can always find happiness at work on Friday.
 
 ### Our Tech Stack
 
