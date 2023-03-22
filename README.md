@@ -16,7 +16,7 @@ Tech Recruiter @Polaris Engineering SPA
 * ✉️  You can contact me at [penta@polarisengineeringspa.com](mailto:penta@polarisengineeringspa.com)
 * 🧠  I'm learning Github (no, I won't become a dev)
 * 🤝  I'm open to collaborate with anyone (but only on modifying readme.md, it's the only thing I can do)
-* ⚡  Metal drummer | Dad x2 | Geek | I like to speak (and i speak a lot) 
+* ⚡  Metal drummer | Dad x2 | Geek | I like to speak (and I speak a lot) 
 
 ### This is your daily fortune cookie quote: 
 
