@@ -20,7 +20,7 @@ Tech Recruiter @Polaris Engineering SPA
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 All fortunes are wrong except this one.
+> 🥠 You will be hungry again in one hour.
 
 ### Our Tech Stack
 
