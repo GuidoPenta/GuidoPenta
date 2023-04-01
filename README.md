@@ -20,7 +20,7 @@ Tech Recruiter @Polaris Engineering SPA
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 How much deeper would the ocean be without sponges?
+> 🥠 Change is inevitable, except for vending machines.
 
 ### Our Tech Stack
 
