@@ -20,7 +20,7 @@ Tech Recruiter @Polaris Engineering SPA
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 How much deeper would the ocean be without sponges?
+> 🥠 All fortunes are wrong except this one.
 
 ### Our Tech Stack
 
