@@ -20,7 +20,7 @@ Tech Recruiter @Polaris Engineering SPA
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Don’t behave with cold manners.
+> 🥠 We don’t know the future, but here’s a cookie.
 
 ### Our Tech Stack
 
