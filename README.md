@@ -20,7 +20,7 @@ Tech Recruiter @Polaris Engineering SPA
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 You will receive a fortune cookie.
+> 🥠 That wasn’t chicken.
 
 ### Our Tech Stack
 
