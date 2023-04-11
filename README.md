@@ -20,7 +20,7 @@ Tech Recruiter @Polaris Engineering SPA
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 That wasn’t chicken.
+> 🥠 Actions speak louder than fortune cookies.
 
 ### Our Tech Stack
 
