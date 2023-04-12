@@ -20,7 +20,7 @@ Tech Recruiter @Polaris Engineering SPA
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Actions speak louder than fortune cookies.
+> 🥠 You will marry a professional athlete - if competitive eating can be considered a sport.
 
 ### Our Tech Stack
 
