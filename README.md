@@ -20,7 +20,7 @@ Tech Recruiter @Polaris Engineering SPA
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 You will marry a professional athlete - if competitive eating can be considered a sport.
+> 🥠 Never forget a friend. Especially if he owes you.
 
 ### Our Tech Stack
 
