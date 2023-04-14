@@ -20,7 +20,7 @@ Tech Recruiter @Polaris Engineering SPA
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Never forget a friend. Especially if he owes you.
+> 🥠 How much deeper would the ocean be without sponges?
 
 ### Our Tech Stack
 
