@@ -20,7 +20,7 @@ Tech Recruiter @Polaris Engineering SPA
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Never forget a friend. Especially if he owes you.
+> 🥠 Three can keep a secret, if you get rid of two.
 
 ### Our Tech Stack
 
