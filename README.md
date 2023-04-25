@@ -20,7 +20,7 @@ Tech Recruiter @Polaris Engineering SPA
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Help! I am being held prisoner in a fortune cookie factory.
+> 🥠 Don’t behave with cold manners.
 
 ### Our Tech Stack
 
