@@ -20,7 +20,7 @@ Tech Recruiter @Polaris Engineering SPA
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 You will die alone and poorly dressed.
+> 🥠 A closed mouth gathers no feet.
 
 ### Our Tech Stack
 
