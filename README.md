@@ -20,7 +20,7 @@ Tech Recruiter @Polaris Engineering SPA
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 A fanatic is one who can't change his mind, and won't change the subject.
+> 🥠 Actions speak louder than fortune cookies.
 
 ### Our Tech Stack
 
