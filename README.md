@@ -20,7 +20,7 @@ Tech Recruiter @Polaris Engineering SPA
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Never forget a friend. Especially if he owes you.
+> 🥠 The world may be your oyster, but it doesn't mean you'll get its pearl.
 
 ### Our Tech Stack
 
