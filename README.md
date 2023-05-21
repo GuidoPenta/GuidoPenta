@@ -20,7 +20,7 @@ Tech Recruiter @Polaris Engineering SPA
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 I can't believe you're about to eat my tiny home.
+> 🥠 Never do something halfway. If you do it w
 
 ### Our Tech Stack
 
