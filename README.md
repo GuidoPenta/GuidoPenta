@@ -20,7 +20,7 @@ Tech Recruiter @Polaris Engineering SPA
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Fail.
+> 🥠 Your pet is planning to eat you.
 
 ### Our Tech Stack
 
