@@ -20,7 +20,7 @@ Tech Recruiter @Polaris Engineering SPA
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Actions speak louder than fortune cookies.
+> 🥠 Ask your mom instead of a cookie.
 
 ### Our Tech Stack
 
