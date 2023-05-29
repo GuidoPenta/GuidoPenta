@@ -20,7 +20,7 @@ Tech Recruiter @Polaris Engineering SPA
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 It’s about time I got out of that cookie.
+> 🥠 Change is inevitable, except for vending machines.
 
 ### Our Tech Stack
 
