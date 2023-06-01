@@ -20,7 +20,7 @@ Tech Recruiter @Polaris Engineering SPA
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 An alien of some sort will be appearing to you shortly.
+> 🥠 You are about to become $8.95 poorer ($6.95 if you had the buffet).
 
 ### Our Tech Stack
 
