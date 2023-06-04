@@ -20,7 +20,7 @@ Tech Recruiter @Polaris Engineering SPA
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 You are about to become $8.95 poorer ($6.95 if you had the buffet).
+> 🥠 You will receive a fortune cookie.
 
 ### Our Tech Stack
 
