@@ -20,7 +20,7 @@ Tech Recruiter @Polaris Engineering SPA
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 May you someday be carbon neutral.
+> 🥠 No snowflake feels responsible in an avalanche.
 
 ### Our Tech Stack
 
