@@ -20,7 +20,7 @@ Tech Recruiter @Polaris Engineering SPA
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 No snowflake feels responsible in an avalanche.
+> 🥠 If you look back, you’ll soon be going that way.
 
 ### Our Tech Stack
 
