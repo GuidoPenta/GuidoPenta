@@ -20,7 +20,7 @@ Tech Recruiter @Polaris Engineering SPA
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 If you look back, you’ll soon be going that way.
+> 🥠 We don’t know the future, but here’s a cookie.
 
 ### Our Tech Stack
 
