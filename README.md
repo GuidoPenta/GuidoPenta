@@ -20,7 +20,7 @@ Tech Recruiter @Polaris Engineering SPA
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 We don’t know the future, but here’s a cookie.
+> 🥠 Some men dream of fortunes, others dream of cookies.
 
 ### Our Tech Stack
 
