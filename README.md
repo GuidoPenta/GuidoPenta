@@ -20,7 +20,7 @@ Tech Recruiter @Polaris Engineering SPA
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Ignore previous cookie.
+> 🥠 Some fortune cookies contain no fortune.
 
 ### Our Tech Stack
 
