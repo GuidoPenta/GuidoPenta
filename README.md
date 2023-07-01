@@ -20,7 +20,7 @@ Tech Recruiter @Polaris Engineering SPA
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Never wear your best pants when you go to fight for freedom.
+> 🥠 If you think we're going to sum up your whole life on this little piece of paper you're crazy.
 
 ### Our Tech Stack
 
