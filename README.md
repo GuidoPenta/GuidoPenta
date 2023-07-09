@@ -20,7 +20,7 @@ Tech Recruiter @Polaris Engineering SPA
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 You can always find happiness at work on Friday.
+> 🥠 I cannot help you, for I am just a cookie.
 
 ### Our Tech Stack
 
