@@ -20,7 +20,7 @@ Tech Recruiter @Polaris Engineering SPA
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 A foolish man listens to his heart. A wise man listens to cookies.
+> 🥠 You will die alone and poorly dressed.
 
 ### Our Tech Stack
 
