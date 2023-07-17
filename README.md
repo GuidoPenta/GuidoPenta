@@ -20,7 +20,7 @@ Tech Recruiter @Polaris Engineering SPA
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 You will die alone and poorly dressed.
+> 🥠 18,000 children starve to death every day. They would have loved this cookie.
 
 ### Our Tech Stack
 
