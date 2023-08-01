@@ -20,7 +20,7 @@ Tech Recruiter @Polaris Engineering SPA
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 There is no mistake so great as that of being always right.
+> 🥠 An alien of some sort will be appearing to you shortly.
 
 ### Our Tech Stack
 
