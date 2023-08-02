@@ -20,7 +20,7 @@ Tech Recruiter @Polaris Engineering SPA
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 An alien of some sort will be appearing to you shortly.
+> 🥠 It’s about time I got out of that cookie.
 
 ### Our Tech Stack
 
