@@ -20,7 +20,7 @@ Tech Recruiter @Polaris Engineering SPA
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 It’s about time I got out of that cookie.
+> 🥠 Don’t eat the paper.
 
 ### Our Tech Stack
 
