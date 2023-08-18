@@ -20,7 +20,7 @@ Tech Recruiter @Polaris Engineering SPA
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Fail.
+> 🥠 This cookie contains 117 calories.
 
 ### Our Tech Stack
 
