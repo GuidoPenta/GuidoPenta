@@ -20,7 +20,7 @@ Tech Recruiter @Polaris Engineering SPA
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 He who laughs last is laughing at you.
+> 🥠 Your fortune said you need to make a donation. Follow the Paypal link.
 
 ### Our Tech Stack
 
