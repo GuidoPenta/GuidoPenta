@@ -20,7 +20,7 @@ Tech Recruiter @Polaris Engineering SPA
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 He who laughs last is laughing at you.
+> 🥠 If a turtle doesn’t have a shell, is it naked or homeless?
 
 ### Our Tech Stack
 
