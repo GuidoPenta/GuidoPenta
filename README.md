@@ -20,7 +20,7 @@ Tech Recruiter @Polaris Engineering SPA
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Don’t eat the paper.
+> 🥠 Change is inevitable, except for vending machines.
 
 ### Our Tech Stack
 
