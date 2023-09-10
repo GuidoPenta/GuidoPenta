@@ -20,7 +20,7 @@ Tech Recruiter @Polaris Engineering SPA
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Change is inevitable, except for vending machines.
+> 🥠 I am worth a fortune.
 
 ### Our Tech Stack
 
