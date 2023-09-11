@@ -20,7 +20,7 @@ Tech Recruiter @Polaris Engineering SPA
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 I am worth a fortune.
+> 🥠 There's no angry way to say bubbles.
 
 ### Our Tech Stack
 
