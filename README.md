@@ -20,7 +20,7 @@ Tech Recruiter @Polaris Engineering SPA
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 There's no angry way to say bubbles.
+> 🥠 Because of your melodic nature, the moonlight never misses an appointment.
 
 ### Our Tech Stack
 
