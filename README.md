@@ -20,7 +20,7 @@ Tech Recruiter @Polaris Engineering SPA
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Because of your melodic nature, the moonlight never misses an appointment.
+> 🥠 Some fortune cookies contain no fortune.
 
 ### Our Tech Stack
 
