@@ -20,7 +20,7 @@ Tech Recruiter @Polaris Engineering SPA
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Don’t eat the paper.
+> 🥠 Your resemblance to a muppet will prevent the world from taking you seriously.
 
 ### Our Tech Stack
 
