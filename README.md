@@ -20,7 +20,7 @@ Tech Recruiter @Polaris Engineering SPA
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Enjoy yourself while you can.
+> 🥠 If you think we're going to sum up your whole life on this little piece of paper you're crazy.
 
 ### Our Tech Stack
 
