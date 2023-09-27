@@ -20,7 +20,7 @@ Tech Recruiter @Polaris Engineering SPA
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 A cynic is only a frustrated optimist.
+> 🥠 You will marry a professional athlete - if competitive eating can be considered a sport.
 
 ### Our Tech Stack
 
