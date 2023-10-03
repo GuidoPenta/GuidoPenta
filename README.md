@@ -20,7 +20,7 @@ Tech Recruiter @Polaris Engineering SPA
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 18,000 children starve to death every day. They would have loved this cookie.
+> 🥠 A conclusion is simply the place where you got tired of thinking.
 
 ### Our Tech Stack
 
