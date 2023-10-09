@@ -20,7 +20,7 @@ Tech Recruiter @Polaris Engineering SPA
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 He who laughs at himself never runs out of things to laugh at.
+> 🥠 No snowflake feels responsible in an avalanche.
 
 ### Our Tech Stack
 
