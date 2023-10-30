@@ -20,7 +20,7 @@ Tech Recruiter @Polaris Engineering SPA
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Run.
+> 🥠 Ask your mom instead of a cookie.
 
 ### Our Tech Stack
 
