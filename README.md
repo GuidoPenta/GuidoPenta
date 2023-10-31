@@ -20,7 +20,7 @@ Tech Recruiter @Polaris Engineering SPA
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Ask your mom instead of a cookie.
+> 🥠 What's the speed of dark?
 
 ### Our Tech Stack
 
