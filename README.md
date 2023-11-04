@@ -20,7 +20,7 @@ Tech Recruiter @Polaris Engineering SPA
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Run.
+> 🥠 The road to riches is paved with homework.
 
 ### Our Tech Stack
 
