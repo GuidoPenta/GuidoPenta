@@ -20,7 +20,7 @@ Tech Recruiter @Polaris Engineering SPA
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 The road to riches is paved with homework.
+> 🥠 Because of your melodic nature, the moonlight never misses an appointment.
 
 ### Our Tech Stack
 
