@@ -20,7 +20,7 @@ Tech Recruiter @Polaris Engineering SPA
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 If you think we're going to sum up your whole life on this little piece of paper you're crazy.
+> 🥠 You will marry a professional athlete - if competitive eating can be considered a sport.
 
 ### Our Tech Stack
 
