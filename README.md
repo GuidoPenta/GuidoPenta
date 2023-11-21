@@ -20,7 +20,7 @@ Tech Recruiter @Polaris Engineering SPA
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 I can't believe you're about to eat my tiny home.
+> 🥠 A foolish man listens to his heart. A wise man listens to cookies.
 
 ### Our Tech Stack
 
