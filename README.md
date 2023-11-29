@@ -20,7 +20,7 @@ Tech Recruiter @Polaris Engineering SPA
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Hard work pays off in the future. Laziness pays off now.
+> 🥠 Ask not what your fortune cookie can do for you but what you can do for your fortune cookie.
 
 ### Our Tech Stack
 
