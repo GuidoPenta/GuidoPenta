@@ -20,7 +20,7 @@ Tech Recruiter @Polaris Engineering SPA
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 18,000 children starve to death every day. They would have loved this cookie.
+> 🥠 Your resemblance to a muppet will prevent the world from taking you seriously.
 
 ### Our Tech Stack
 
