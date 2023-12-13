@@ -20,7 +20,7 @@ Tech Recruiter @Polaris Engineering SPA
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Help! I am being held prisoner in a fortune cookie factory.
+> 🥠 A fanatic is one who can't change his mind, and won't change the subject.
 
 ### Our Tech Stack
 
