@@ -20,7 +20,7 @@ Tech Recruiter @Polaris Engineering SPA
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 There's no angry way to say bubbles.
+> 🥠 A foolish man listens to his heart. A wise man listens to cookies.
 
 ### Our Tech Stack
 
