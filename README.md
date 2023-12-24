@@ -20,7 +20,7 @@ Tech Recruiter @Polaris Engineering SPA
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Your resemblance to a muppet will prevent the world from taking you seriously.
+> 🥠 Never do something halfway. If you do it w
 
 ### Our Tech Stack
 
