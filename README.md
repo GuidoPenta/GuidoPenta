@@ -20,7 +20,7 @@ Tech Recruiter @Polaris Engineering SPA
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 I can't believe you're about to eat my tiny home.
+> 🥠 A fanatic is one who can't change his mind, and won't change the subject.
 
 ### Our Tech Stack
 
