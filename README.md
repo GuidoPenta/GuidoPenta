@@ -20,7 +20,7 @@ Tech Recruiter @Polaris Engineering SPA
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 He who laughs last is laughing at you.
+> 🥠 Help! I am being held prisoner in a fortune cookie factory.
 
 ### Our Tech Stack
 
