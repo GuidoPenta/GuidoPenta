@@ -20,7 +20,7 @@ Tech Recruiter @Polaris Engineering SPA
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Run.
+> 🥠 A closed mouth gathers no feet.
 
 ### Our Tech Stack
 
