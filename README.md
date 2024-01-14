@@ -20,7 +20,7 @@ Tech Recruiter @Polaris Engineering SPA
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 There's no angry way to say bubbles.
+> 🥠 Ask not what your fortune cookie can do for you but what you can do for your fortune cookie.
 
 ### Our Tech Stack
 
