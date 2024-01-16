@@ -20,7 +20,7 @@ Tech Recruiter & co-founder @forloop.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Flattery will go far tonight.
+> 🥠 He who throws dirt is losing ground.
 
 ### Where you can find me
 
