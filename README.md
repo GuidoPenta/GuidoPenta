@@ -20,7 +20,7 @@ Tech Recruiter & co-founder @forloop.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 You don't have to be faster than the bear, you just have to be faster than the slowing guy running from it.
+> 🥠 I see money in your future. It's not yours though.
 
 ### Where you can find me
 
