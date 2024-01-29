@@ -20,7 +20,7 @@ Tech Recruiter & co-founder @forloop.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Don’t eat the paper.
+> 🥠 May you someday be carbon neutral.
 
 ### Where you can find me
 
