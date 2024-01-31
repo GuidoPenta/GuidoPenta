@@ -20,7 +20,7 @@ Tech Recruiter & co-founder @forloop.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 If a turtle doesn’t have a shell, is it naked or homeless?
+> 🥠 This cookie contains 117 calories.
 
 ### Where you can find me
 
