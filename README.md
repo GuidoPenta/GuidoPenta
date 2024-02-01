@@ -20,7 +20,7 @@ Tech Recruiter & co-founder @forloop.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 This cookie contains 117 calories.
+> 🥠 If you look back, you’ll soon be going that way.
 
 ### Where you can find me
 
