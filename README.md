@@ -20,7 +20,7 @@ Tech Recruiter & co-founder @forloop.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Some men dream of fortunes, others dream of cookies.
+> 🥠 If you look back, you’ll soon be going that way.
 
 ### Where you can find me
 
