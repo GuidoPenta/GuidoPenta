@@ -20,7 +20,7 @@ Tech Recruiter & co-founder @forloop.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 That wasn’t chicken.
+> 🥠 He who laughs at himself never runs out of things to laugh at.
 
 ### Where you can find me
 
