@@ -20,7 +20,7 @@ Tech Recruiter & co-founder @forloop.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 You will be hungry again in one hour.
+> 🥠 Don’t behave with cold manners.
 
 ### Where you can find me
 
