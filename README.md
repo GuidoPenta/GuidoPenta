@@ -20,7 +20,7 @@ Tech Recruiter & co-founder @forloop.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 He who laughs at himself never runs out of things to laugh at.
+> 🥠 The road to riches is paved with homework.
 
 ### Where you can find me
 
