@@ -20,7 +20,7 @@ Tech Recruiter & co-founder @forloop.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Do not mistake temptation for opportunity.
+> 🥠 A conclusion is simply the place where you got tired of thinking.
 
 ### Where you can find me
 
