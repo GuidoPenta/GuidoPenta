@@ -20,7 +20,7 @@ Tech Recruiter & co-founder @forloop.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 I see money in your future. It's not yours though.
+> 🥠 You love Chinese food.
 
 ### Where you can find me
 
