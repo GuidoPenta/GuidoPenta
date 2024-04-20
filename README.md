@@ -20,7 +20,7 @@ Tech Recruiter & co-founder @forloop.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Run.
+> 🥠 No snowflake feels responsible in an avalanche.
 
 ### Where you can find me
 
