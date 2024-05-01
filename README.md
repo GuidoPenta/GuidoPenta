@@ -20,7 +20,7 @@ Tech Recruiter & co-founder @forloop.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Hard work pays off in the future. Laziness pays off now.
+> 🥠 Flattery will go far tonight.
 
 ### Where you can find me
 
