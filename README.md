@@ -20,7 +20,7 @@ Tech Recruiter & co-founder @forloop.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 A conclusion is simply the place where you got tired of thinking.
+> 🥠 Your pet is planning to eat you.
 
 ### Where you can find me
 
