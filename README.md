@@ -13,7 +13,7 @@ Tech Recruiter & co-founder @forloop.tech
 <img src="https://media1.giphy.com/media/13HgwGsXF0aiGY/giphy.gif" />
 
 * 🌍  I'm based in Rome, Italy
-* ✉️  You can contact me at [guido.forloop@gmail.com](mailto:guido@forloop.tech)
+* ✉️  You can contact me at [guido@forloop.tech](mailto:guido@forloop.tech)
 * 🧠  I'm learning Github (no, I won't become a dev)
 * 🤝  I'm open to collaborate with anyone (but only on modifying readme.md, it's the only thing I can do)
 * ⚡  Metal drummer | Dad x2 | Geek | I like to speak (and I speak a lot) 
