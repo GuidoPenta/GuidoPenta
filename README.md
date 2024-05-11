@@ -20,7 +20,7 @@ Tech Recruiter & co-founder @forloop.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Help! I am being held prisoner in a fortune cookie factory.
+> 🥠 Fail.
 
 ### Where you can find me
 
