@@ -20,7 +20,7 @@ Tech Recruiter & co-founder @forloop.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Change is inevitable, except for vending machines.
+> 🥠 I am worth a fortune.
 
 ### Where you can find me
 
