@@ -20,7 +20,7 @@ Tech Recruiter & co-founder @forloop.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 You are not illiterate.
+> 🥠 I cannot help you, for I am just a cookie.
 
 ### Where you can find me
 
