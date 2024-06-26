@@ -20,7 +20,7 @@ Tech Recruiter & co-founder @forloop.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 If you look back, you’ll soon be going that way.
+> 🥠 I see money in your future. It's not yours though.
 
 ### Where you can find me
 
