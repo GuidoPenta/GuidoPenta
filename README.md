@@ -20,7 +20,7 @@ Tech Recruiter & co-founder @forloop.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 He who throws dirt is losing ground.
+> 🥠 You will die alone and poorly dressed.
 
 ### Where you can find me
 
