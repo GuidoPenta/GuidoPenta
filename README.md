@@ -20,7 +20,7 @@ Tech Recruiter & co-founder @forloop.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Your resemblance to a muppet will prevent the world from taking you seriously.
+> 🥠 What's the speed of dark?
 
 ### Where you can find me
 
