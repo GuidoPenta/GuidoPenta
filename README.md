@@ -20,7 +20,7 @@ Tech Recruiter & co-founder @forloop.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 You will live long enough to open many fortune cookies.
+> 🥠 The world may be your oyster, but it doesn't mean you'll get its pearl.
 
 ### Where you can find me
 
