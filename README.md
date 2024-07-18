@@ -20,7 +20,7 @@ Tech Recruiter & co-founder @forloop.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 The world may be your oyster, but it doesn't mean you'll get its pearl.
+> 🥠 Your resemblance to a muppet will prevent the world from taking you seriously.
 
 ### Where you can find me
 
