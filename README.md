@@ -20,7 +20,7 @@ Tech Recruiter & co-founder @forloop.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 You have rice in your teeth.
+> 🥠 There's no angry way to say bubbles.
 
 ### Where you can find me
 
