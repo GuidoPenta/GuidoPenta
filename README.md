@@ -20,7 +20,7 @@ Tech Recruiter & co-founder @forloop.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 He who throws dirt is losing ground.
+> 🥠 Don’t forget you are always on our minds.
 
 ### Where you can find me
 
