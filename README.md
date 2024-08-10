@@ -20,7 +20,7 @@ Tech Recruiter & co-founder @forloop.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 You will marry a professional athlete - if competitive eating can be considered a sport.
+> 🥠 There is no mistake so great as that of being always right.
 
 ### Where you can find me
 
