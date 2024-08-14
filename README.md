@@ -20,7 +20,7 @@ Tech Recruiter & co-founder @forloop.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 You will receive a fortune cookie.
+> 🥠 Flattery will go far tonight.
 
 ### Where you can find me
 
