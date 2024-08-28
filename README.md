@@ -20,7 +20,7 @@ Tech Recruiter & co-founder @forloop.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 If you think we're going to sum up your whole life on this little piece of paper you're crazy.
+> 🥠 Don’t let statistics do a number on you.
 
 ### Where you can find me
 
