@@ -20,7 +20,7 @@ Tech Recruiter & co-founder @forloop.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 A closed mouth gathers no feet.
+> 🥠 A cynic is only a frustrated optimist.
 
 ### Where you can find me
 
