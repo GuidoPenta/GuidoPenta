@@ -20,7 +20,7 @@ Tech Recruiter & co-founder @forloop.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Your pet is planning to eat you.
+> 🥠 Your resemblance to a muppet will prevent the world from taking you seriously.
 
 ### Where you can find me
 
