@@ -20,7 +20,7 @@ Tech Recruiter & co-founder @forloop.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 How much deeper would the ocean be without sponges?
+> 🥠 Someone will invite you to a Karaoke party.
 
 ### Where you can find me
 
