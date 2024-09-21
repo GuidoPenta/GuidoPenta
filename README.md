@@ -20,7 +20,7 @@ Tech Recruiter & co-founder @forloop.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 You will be hungry again in one hour.
+> 🥠 You are about to become $8.95 poorer ($6.95 if you had the buffet).
 
 ### Where you can find me
 
