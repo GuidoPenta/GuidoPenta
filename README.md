@@ -20,7 +20,7 @@ Tech Recruiter & co-founder @forloop.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Does not compile.
+> 🥠 Don’t forget you are always on our minds.
 
 ### Where you can find me
 
