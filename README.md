@@ -20,7 +20,7 @@ Tech Recruiter & co-founder @forloop.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Fortune not found? Abort, Retry, Ignore.
+> 🥠 Someone will invite you to a Karaoke party.
 
 ### Where you can find me
 
