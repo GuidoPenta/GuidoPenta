@@ -20,7 +20,7 @@ Tech Recruiter & co-founder @forloop.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 That wasn’t chicken.
+> 🥠 We don’t know the future, but here’s a cookie.
 
 ### Where you can find me
 
