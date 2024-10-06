@@ -20,7 +20,7 @@ Tech Recruiter & co-founder @forloop.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 A closed mouth gathers no feet.
+> 🥠 If you think we're going to sum up your whole life on this little piece of paper you're crazy.
 
 ### Where you can find me
 
