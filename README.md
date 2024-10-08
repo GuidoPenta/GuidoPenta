@@ -20,7 +20,7 @@ Tech Recruiter & co-founder @forloop.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Fail.
+> 🥠 All fortunes are wrong except this one.
 
 ### Where you can find me
 
