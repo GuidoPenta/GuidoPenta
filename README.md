@@ -20,7 +20,7 @@ Tech Recruiter & co-founder @forloop.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 All fortunes are wrong except this one.
+> 🥠 Never forget a friend. Especially if he owes you.
 
 ### Where you can find me
 
