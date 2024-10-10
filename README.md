@@ -20,7 +20,7 @@ Tech Recruiter & co-founder @forloop.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Never forget a friend. Especially if he owes you.
+> 🥠 Hard work pays off in the future. Laziness pays off now.
 
 ### Where you can find me
 
