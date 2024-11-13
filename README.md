@@ -20,7 +20,7 @@ Tech Recruiter & co-founder @forloop.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 There is no mistake so great as that of being always right.
+> 🥠 Don’t behave with cold manners.
 
 ### Where you can find me
 
