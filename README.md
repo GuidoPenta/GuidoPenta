@@ -20,7 +20,7 @@ Tech Recruiter & co-founder @forloop.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 You are not illiterate.
+> 🥠 Your fortune said you need to make a donation. Follow the Paypal link.
 
 ### Where you can find me
 
