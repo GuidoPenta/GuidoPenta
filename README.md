@@ -20,7 +20,7 @@ Tech Recruiter & co-founder @forloop.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Someone will invite you to a Karaoke party.
+> 🥠 You will marry a professional athlete - if competitive eating can be considered a sport.
 
 ### Where you can find me
 
