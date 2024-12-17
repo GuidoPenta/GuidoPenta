@@ -20,7 +20,7 @@ Tech Recruiter & co-founder @forloop.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Never do something halfway. If you do it w
+> 🥠 Because of your melodic nature, the moonlight never misses an appointment.
 
 ### Where you can find me
 
