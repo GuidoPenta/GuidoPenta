@@ -20,7 +20,7 @@ Tech Recruiter & co-founder @forloop.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 You love Chinese food.
+> 🥠 You think it’s a secret, but they know.
 
 ### Where you can find me
 
