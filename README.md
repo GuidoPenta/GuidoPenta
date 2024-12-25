@@ -20,7 +20,7 @@ Tech Recruiter & co-founder @forloop.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 A conclusion is simply the place where you got tired of thinking.
+> 🥠 Help! I am being held prisoner in a fortune cookie factory.
 
 ### Where you can find me
 
