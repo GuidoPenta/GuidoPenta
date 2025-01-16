@@ -20,7 +20,7 @@ Tech Recruiter & co-founder @forloop.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 The road to riches is paved with homework.
+> 🥠 Don’t let statistics do a number on you.
 
 ### Where you can find me
 
