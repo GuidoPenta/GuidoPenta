@@ -1,7 +1,7 @@
 Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-9127-417c-8b55-ab5a4333674e.gif)My name is Guido
 =============================================================================================================================
 
-Tech Recruiter & co-founder @forloop.tech
+Chief RAL Officer & co-founder @welyk.tech
 ---------------------------------------
 
 🔭 I’m currently searching for the best tech talents in Italy for my clients!
@@ -13,7 +13,7 @@ Tech Recruiter & co-founder @forloop.tech
 <img src="https://media1.giphy.com/media/13HgwGsXF0aiGY/giphy.gif" />
 
 * 🌍  I'm based in Rome, Italy
-* ✉️  You can contact me at [guido@forloop.tech](mailto:guido@forloop.tech)
+* ✉️  You can contact me at [guido@welyk.tech](mailto:guido@welyk.tech)
 * 🧠  I'm learning Github (no, I won't become a dev)
 * 🤝  I'm open to collaborate with anyone (but only on modifying readme.md, it's the only thing I can do)
 * ⚡  Metal drummer | Dad x2 | Geek | I like to speak (and I speak a lot) 
