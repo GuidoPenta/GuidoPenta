@@ -20,7 +20,7 @@ Chief RAL Officer & co-founder @welyk.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 All fortunes are wrong except this one.
+> 🥠 Enjoy yourself while you can.
 
 ### Where you can find me
 
