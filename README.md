@@ -20,7 +20,7 @@ Chief RAL Officer & co-founder @welyk.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 There's no angry way to say bubbles.
+> 🥠 You will receive a fortune cookie.
 
 ### Where you can find me
 
