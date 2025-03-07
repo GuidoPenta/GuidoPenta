@@ -20,7 +20,7 @@ Chief RAL Officer & co-founder @welyk.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Do not mistake temptation for opportunity.
+> 🥠 Change is inevitable, except for vending machines.
 
 ### Where you can find me
 
