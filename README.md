@@ -20,7 +20,7 @@ Chief RAL Officer & co-founder @welyk.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Fortune not found? Abort, Retry, Ignore.
+> 🥠 Never wear your best pants when you go to fight for freedom.
 
 ### Where you can find me
 
