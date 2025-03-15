@@ -20,7 +20,7 @@ Chief RAL Officer & co-founder @welyk.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Avoid taking unnecessary gambles. Lucky numbers: 12, 15, 23, 28, 37
+> 🥠 Hard work pays off in the future. Laziness pays off now.
 
 ### Where you can find me
 
