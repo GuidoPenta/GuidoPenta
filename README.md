@@ -20,7 +20,7 @@ Chief RAL Officer & co-founder @welyk.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 You will marry a professional athlete - if competitive eating can be considered a sport.
+> 🥠 You have rice in your teeth.
 
 ### Where you can find me
 
