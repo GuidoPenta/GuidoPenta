@@ -20,7 +20,7 @@ Chief RAL Officer & co-founder @welyk.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Your fortune said you need to make a donation. Follow the Paypal link.
+> 🥠 18,000 children starve to death every day. They would have loved this cookie.
 
 ### Where you can find me
 
