@@ -20,7 +20,7 @@ Chief RAL Officer & co-founder @welyk.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 A fanatic is one who can't change his mind, and won't change the subject.
+> 🥠 You will live long enough to open many fortune cookies.
 
 ### Where you can find me
 
