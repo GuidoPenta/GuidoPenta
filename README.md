@@ -20,7 +20,7 @@ Chief RAL Officer & co-founder @welyk.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Three can keep a secret, if you get rid of two.
+> 🥠 What's the speed of dark?
 
 ### Where you can find me
 
