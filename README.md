@@ -20,7 +20,7 @@ Chief RAL Officer & co-founder @welyk.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 There is no mistake so great as that of being always right.
+> 🥠 What's the speed of dark?
 
 ### Where you can find me
 
