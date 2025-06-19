@@ -20,7 +20,7 @@ Chief RAL Officer & co-founder @welyk.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 I can't believe you're about to eat my tiny home.
+> 🥠 May you someday be carbon neutral.
 
 ### Where you can find me
 
