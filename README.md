@@ -20,7 +20,7 @@ Chief RAL Officer & co-founder @welyk.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 May you someday be carbon neutral.
+> 🥠 It’s about time I got out of that cookie.
 
 ### Where you can find me
 
