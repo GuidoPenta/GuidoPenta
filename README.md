@@ -20,7 +20,7 @@ Chief RAL Officer & co-founder @welyk.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 The world may be your oyster, but it doesn't mean you'll get its pearl.
+> 🥠 The greatest danger could be your stupidity.
 
 ### Where you can find me
 
