@@ -20,7 +20,7 @@ Chief RAL Officer & co-founder @welyk.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Never do something halfway. If you do it w
+> 🥠 Help! I am being held prisoner in a fortune cookie factory.
 
 ### Where you can find me
 
