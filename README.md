@@ -20,7 +20,7 @@ Chief RAL Officer & co-founder @welyk.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Hard work pays off in the future. Laziness pays off now.
+> 🥠 Don’t eat the paper.
 
 ### Where you can find me
 
