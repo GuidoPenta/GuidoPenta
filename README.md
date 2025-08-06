@@ -20,7 +20,7 @@ Chief RAL Officer & co-founder @welyk.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 If you look back, you’ll soon be going that way.
+> 🥠 A cynic is only a frustrated optimist.
 
 ### Where you can find me
 
