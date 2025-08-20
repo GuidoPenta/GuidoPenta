@@ -20,7 +20,7 @@ Chief RAL Officer & co-founder @welyk.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Never do something halfway. If you do it w
+> 🥠 The greatest danger could be your stupidity.
 
 ### Where you can find me
 
