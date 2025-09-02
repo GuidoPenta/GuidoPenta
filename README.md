@@ -20,7 +20,7 @@ Chief RAL Officer & co-founder @welyk.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 An alien of some sort will be appearing to you shortly.
+> 🥠 You love Chinese food.
 
 ### Where you can find me
 
