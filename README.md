@@ -20,7 +20,7 @@ Chief RAL Officer & co-founder @welyk.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 You love Chinese food.
+> 🥠 Some men dream of fortunes, others dream of cookies.
 
 ### Where you can find me
 
