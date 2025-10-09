@@ -20,7 +20,7 @@ Chief RAL Officer & co-founder @welyk.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Change is inevitable, except for vending machines.
+> 🥠 Don’t eat the paper.
 
 ### Where you can find me
 
