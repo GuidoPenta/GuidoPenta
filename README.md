@@ -20,7 +20,7 @@ Chief RAL Officer & co-founder @welyk.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 There is no mistake so great as that of being always right.
+> 🥠 I am worth a fortune.
 
 ### Where you can find me
 
