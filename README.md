@@ -20,7 +20,7 @@ Chief RAL Officer & co-founder @welyk.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 I am worth a fortune.
+> 🥠 Your resemblance to a muppet will prevent the world from taking you seriously.
 
 ### Where you can find me
 
