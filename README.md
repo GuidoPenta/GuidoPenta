@@ -20,7 +20,7 @@ Chief RAL Officer & co-founder @welyk.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 You can always find happiness at work on Friday.
+> 🥠 Flattery will go far tonight.
 
 ### Where you can find me
 
