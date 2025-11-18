@@ -20,7 +20,7 @@ Chief RAL Officer & co-founder @welyk.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Don’t behave with cold manners.
+> 🥠 Enjoy yourself while you can.
 
 ### Where you can find me
 
