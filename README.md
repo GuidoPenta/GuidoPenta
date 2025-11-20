@@ -20,7 +20,7 @@ Chief RAL Officer & co-founder @welyk.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Never wear your best pants when you go to fight for freedom.
+> 🥠 You will be hungry again in one hour.
 
 ### Where you can find me
 
