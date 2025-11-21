@@ -20,7 +20,7 @@ Chief RAL Officer & co-founder @welyk.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 You will be hungry again in one hour.
+> 🥠 If a turtle doesn’t have a shell, is it naked or homeless?
 
 ### Where you can find me
 
