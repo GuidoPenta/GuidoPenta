@@ -20,7 +20,7 @@ Chief RAL Officer & co-founder @welyk.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 If a turtle doesn’t have a shell, is it naked or homeless?
+> 🥠 Change is inevitable, except for vending machines.
 
 ### Where you can find me
 
