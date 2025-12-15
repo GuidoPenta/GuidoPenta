@@ -20,7 +20,7 @@ Chief RAL Officer & co-founder @welyk.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 It is a good day to have a good day.
+> 🥠 He who throws dirt is losing ground.
 
 ### Where you can find me
 
