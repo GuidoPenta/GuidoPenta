@@ -20,7 +20,7 @@ Chief RAL Officer & co-founder @welyk.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Never forget a friend. Especially if he owes you.
+> 🥠 You are about to become $8.95 poorer ($6.95 if you had the buffet).
 
 ### Where you can find me
 
