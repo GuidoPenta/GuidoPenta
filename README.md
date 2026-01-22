@@ -20,7 +20,7 @@ Chief RAL Officer & co-founder @welyk.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 If a turtle doesn’t have a shell, is it naked or homeless?
+> 🥠 Because of your melodic nature, the moonlight never misses an appointment.
 
 ### Where you can find me
 
