@@ -20,7 +20,7 @@ Chief RAL Officer & co-founder @welyk.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Your pet is planning to eat you.
+> 🥠 The fortune you seek is in another cookie.
 
 ### Where you can find me
 
