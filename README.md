@@ -20,7 +20,7 @@ Chief RAL Officer & co-founder @welyk.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Don’t let statistics do a number on you.
+> 🥠 A cynic is only a frustrated optimist.
 
 ### Where you can find me
 
