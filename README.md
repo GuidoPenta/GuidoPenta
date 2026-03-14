@@ -20,7 +20,7 @@ Chief RAL Officer & co-founder @welyk.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Do not mistake temptation for opportunity.
+> 🥠 How much deeper would the ocean be without sponges?
 
 ### Where you can find me
 
