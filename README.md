@@ -20,7 +20,7 @@ Chief RAL Officer & co-founder @welyk.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Don’t forget you are always on our minds.
+> 🥠 Actions speak louder than fortune cookies.
 
 ### Where you can find me
 
