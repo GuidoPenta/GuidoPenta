@@ -20,7 +20,7 @@ Chief RAL Officer & co-founder @welyk.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Actions speak louder than fortune cookies.
+> 🥠 You will be hungry again in one hour.
 
 ### Where you can find me
 
