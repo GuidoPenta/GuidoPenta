@@ -20,7 +20,7 @@ Chief RAL Officer & co-founder @welyk.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 You will be hungry again in one hour.
+> 🥠 Three can keep a secret, if you get rid of two.
 
 ### Where you can find me
 
