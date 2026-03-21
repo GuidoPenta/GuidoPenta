@@ -20,7 +20,7 @@ Chief RAL Officer & co-founder @welyk.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 You don't have to be faster than the bear, you just have to be faster than the slowing guy running from it.
+> 🥠 You are not illiterate.
 
 ### Where you can find me
 
