@@ -20,7 +20,7 @@ Chief RAL Officer & co-founder @welyk.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Some men dream of fortunes, others dream of cookies.
+> 🥠 It is a good day to have a good day.
 
 ### Where you can find me
 
