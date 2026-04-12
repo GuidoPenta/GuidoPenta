@@ -20,7 +20,7 @@ Chief RAL Officer & co-founder @welyk.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 He who laughs at himself never runs out of things to laugh at.
+> 🥠 There's no angry way to say bubbles.
 
 ### Where you can find me
 
