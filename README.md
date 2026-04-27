@@ -20,7 +20,7 @@ Chief RAL Officer & co-founder @welyk.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 This cookie contains 117 calories.
+> 🥠 Never forget a friend. Especially if he owes you.
 
 ### Where you can find me
 
