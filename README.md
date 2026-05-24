@@ -20,7 +20,7 @@ Chief RAL Officer & co-founder @welyk.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 You are not illiterate.
+> 🥠 If you look back, you’ll soon be going that way.
 
 ### Where you can find me
 
