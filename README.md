@@ -20,7 +20,7 @@ Chief RAL Officer & co-founder @welyk.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 What's the speed of dark?
+> 🥠 Some men dream of fortunes, others dream of cookies.
 
 ### Where you can find me
 
