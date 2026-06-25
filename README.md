@@ -20,7 +20,7 @@ Chief RAL Officer & co-founder @welyk.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Ask your mom instead of a cookie.
+> 🥠 Some fortune cookies contain no fortune.
 
 ### Where you can find me
 
