@@ -20,7 +20,7 @@ Chief RAL Officer & co-founder @welyk.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Don’t eat the paper.
+> 🥠 I see money in your future. It's not yours though.
 
 ### Where you can find me
 
