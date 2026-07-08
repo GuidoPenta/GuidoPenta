@@ -20,7 +20,7 @@ Chief RAL Officer & co-founder @welyk.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 You have rice in your teeth.
+> 🥠 No snowflake feels responsible in an avalanche.
 
 ### Where you can find me
 
