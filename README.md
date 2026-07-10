@@ -20,7 +20,7 @@ Chief RAL Officer & co-founder @welyk.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 The fortune you seek is in another cookie.
+> 🥠 He who laughs last is laughing at you.
 
 ### Where you can find me
 
