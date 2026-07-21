@@ -20,7 +20,7 @@ Chief RAL Officer & co-founder @welyk.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Ask not what your fortune cookie can do for you but what you can do for your fortune cookie.
+> 🥠 If a turtle doesn’t have a shell, is it naked or homeless?
 
 ### Where you can find me
 
