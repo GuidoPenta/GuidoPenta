@@ -20,7 +20,7 @@ Chief RAL Officer & co-founder @welyk.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 We don’t know the future, but here’s a cookie.
+> 🥠 You don't have to be faster than the bear, you just have to be faster than the slowing guy running from it.
 
 ### Where you can find me
 
