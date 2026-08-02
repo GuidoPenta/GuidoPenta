@@ -20,7 +20,7 @@ Chief RAL Officer & co-founder @welyk.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 I cannot help you, for I am just a cookie.
+> 🥠 The road to riches is paved with homework.
 
 ### Where you can find me
 
