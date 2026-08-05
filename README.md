@@ -20,7 +20,7 @@ Chief RAL Officer & co-founder @welyk.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 You will die alone and poorly dressed.
+> 🥠 Someone will invite you to a Karaoke party.
 
 ### Where you can find me
 
