@@ -20,7 +20,7 @@ Chief RAL Officer & co-founder @welyk.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 The world may be your oyster, but it doesn't mean you'll get its pearl.
+> 🥠 How much deeper would the ocean be without sponges?
 
 ### Where you can find me
 
