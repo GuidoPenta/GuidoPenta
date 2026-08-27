@@ -20,7 +20,7 @@ Chief RAL Officer & co-founder @welyk.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 It is a good day to have a good day.
+> 🥠 If you think we're going to sum up your whole life on this little piece of paper you're crazy.
 
 ### Where you can find me
 
