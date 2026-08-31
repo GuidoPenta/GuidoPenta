@@ -20,7 +20,7 @@ Chief RAL Officer & co-founder @welyk.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 A conclusion is simply the place where you got tired of thinking.
+> 🥠 Your fortune said you need to make a donation. Follow the Paypal link.
 
 ### Where you can find me
 
