@@ -20,7 +20,7 @@ Chief RAL Officer & co-founder @welyk.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 A foolish man listens to his heart. A wise man listens to cookies.
+> 🥠 Don’t let statistics do a number on you.
 
 ### Where you can find me
 
