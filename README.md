@@ -20,7 +20,7 @@ Chief RAL Officer & co-founder @welyk.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Because of your melodic nature, the moonlight never misses an appointment.
+> 🥠 Someone will invite you to a Karaoke party.
 
 ### Where you can find me
 
