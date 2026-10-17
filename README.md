@@ -20,7 +20,7 @@ Chief RAL Officer & co-founder @welyk.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 The road to riches is paved with homework.
+> 🥠 Do not mistake temptation for opportunity.
 
 ### Where you can find me
 
