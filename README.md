@@ -20,7 +20,7 @@ Chief RAL Officer & co-founder @welyk.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 Does not compile.
+> 🥠 It’s about time I got out of that cookie.
 
 ### Where you can find me
 
