@@ -20,7 +20,7 @@ Chief RAL Officer & co-founder @welyk.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 The greatest danger could be your stupidity.
+> 🥠 You will marry a professional athlete - if competitive eating can be considered a sport.
 
 ### Where you can find me
 
