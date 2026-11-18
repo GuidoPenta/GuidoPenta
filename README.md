@@ -20,7 +20,7 @@ Chief RAL Officer & co-founder @welyk.tech
 
 ### This is your daily fortune cookie quote: 
 
-> 🥠 No snowflake feels responsible in an avalanche.
+> 🥠 A closed mouth gathers no feet.
 
 ### Where you can find me
 
